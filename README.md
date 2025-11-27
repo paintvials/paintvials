@@ -1,4 +1,5 @@
-* hi  nyallo _im Angel_
+* hi  nyallo im <ins>**Angel**</ins>,, tho you already know that && other things. i go by other things when it comes to skins or wateva the case may be
+
 
 <!--
 **paintvials/paintvials** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
