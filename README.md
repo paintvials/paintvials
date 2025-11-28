@@ -1,5 +1,5 @@
 * nyallo im <ins>**Aᥒgᥱᥣ**</ins>,, all the extra identity stuff can be found [here](url) !!! ooo aaah so cool
-   * i have a Fluid identity && my Current skin is very much attached to that fact.
+   * whats there correlates to their skin -- for *those* irls,, i am not you, you are not me ok ? ok.
 <!--
 **paintvials/paintvials** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
