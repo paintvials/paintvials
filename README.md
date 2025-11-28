@@ -1,5 +1,6 @@
-* nyallo im <ins>**Aᥒgᥱᥣ**</ins>,, all the extra identity stuff can be found [here](url) !!! ooo aaah so cool
-   * whats there correlates to their skin — for *those* irls : i am not you, you are not me ok ? ok.
+* nyallo im <ins>Aᥒgᥱᥣ</ins> ,, all the extra identity stuff can be found [here](url) !!! ooo aaah so cool
+  * Not a sys, not all are particuarly kins either — im just a fluid lil guy.
+  - i also dont do or care abt shipslop — 
 <!--
 **paintvials/paintvials** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
