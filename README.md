@@ -4,6 +4,6 @@
  
 * nyallo im <ins>Aᥒgᥱᥣ</ins> as you know ,, all my extra identity stuff can be found [here](url) !!! ooo aaah so cool
   * Not a sys — evil Shapeshifter && Otherkin.
-  * oh yuh ship slop aint really my interest. me sitting w  you ≠ ship reasons.
 * a rather affectionate cuddler if im not offtab
   * i disconnect a lot sho sorry if i miss something or whateva
+  * oh yuh ship slop aint really my interest. me sitting w  you w a certain ≠ ship,,, dont be weird bru.
