@@ -2,6 +2,7 @@
   * Not a sys — evil Shapeshifter && Otherkin.
   * oh yuh ship slop aint really my interest. me sitting w  you ≠ ship reasons.
 * a rather affectionate cuddler if im not offtab
+  * i disconnect a lot sho sorry if i miss something or whateva
 <!--
 **paintvials/paintvials** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
