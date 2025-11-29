@@ -3,7 +3,7 @@
   * oh yuh ship slop aint really my interest. me sitting w  you ≠ ship reasons.
 * a rather affectionate cuddler if im not offtab
   * i disconnect a lot sho sorry if i miss something or whateva
-  <img src="[https://your-image-url.type](https://i.postimg.cc/HsynzsYs/pony-town-sit-ponyplush-16x.png)" width="100" height="100">
+  <img src="[https://your-image-url.type](https://i.postimg.cc/HsynzsYs/astroo.png)" width="100" height="100">
 <!--
 **paintvials/paintvials** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
