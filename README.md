@@ -1,5 +1,6 @@
 * nyallo im <ins>Aᥒgᥱᥣ</ins> as you know ,, all my extra identity stuff can be found [here](url) !!! ooo aaah so cool
   * Not a sys — evil Shapeshifter && Otherkin.
+  * oh yuh ship slop aint really my interest. me sitting w  you ≠ ship reasons.
 * a rather affectionate cuddler if im not offtab
 <!--
 **paintvials/paintvials** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
