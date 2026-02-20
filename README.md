@@ -1,6 +1,6 @@
-<p align="center"> <img width="150" height="800" alt="astroo" src="https://github.com/user-attachments/assets/3a8210f5-b65c-4b9f-8ece-cbb26dbc6f25" />
+<p align="center"> <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/5f30cf91-ee42-4acf-8b81-2b2cc368698f" />
 
-[ youll probably see me like dis the most currently )
+ [ youll probably see me like dis the most currently )
  
 * nyallo im <ins>Aᥒgᥱᥣ</ins> as you know ,, all my extra identity stuff can be found [here](url) !!! ooo aaah so cool
   * Not a sys — evil Shapeshifter && Otherkin.
