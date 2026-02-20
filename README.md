@@ -2,7 +2,7 @@
 
  <p align="center"> nyallo im angel.. i also go by Towa sometimez. uhm if u nosey or care abt idnetity stuff u can go [here](https://pronouns.cc/@absent)
   
-* nyallo im <ins>Aᥒgᥱᥣ</ins> as you know ,, all my extra identity stuff can be found [here](url) !!! ooo aaah so cool
+
   * Not a sys — evil Shapeshifter && Otherkin.
 * a rather affectionate cuddler if im not offtab
   * i disconnect a lot sho sorry if i miss something or whateva
