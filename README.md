@@ -1,9 +1,11 @@
 <p align="center"> <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/5f30cf91-ee42-4acf-8b81-2b2cc368698f" />
 
- <p align="center"> nyallo im angel.. i also go by Towa sometimez. uhm if u nosey or care abt idnetity stuff u can go [here](https://pronouns.cc/@absent)
-  
+ <p align="center"> nyallo im angel.. i also go by Towa sometimez. uhm if u nosey or care abt identity stuff u can go <a href="https://pronouns.cc/@absent">here</a>
+ 
+   <p align="center"> im black & 17 yos (2/11) so that will. certainly impact how i go about conversation n stuff. 
+    
+   >  erm -15 keep ur distance / interaction limited i dont wanna be frens w or talk to drooling babies #keepingitreal #iaintdiddy
 
-  * Not a sys — evil Shapeshifter && Otherkin.
-* a rather affectionate cuddler if im not offtab
-  * i disconnect a lot sho sorry if i miss something or whateva
-  * oh yuh ship slop aint really my interest. me sitting w  you w a certain ≠ ship,,, dont be weird bru.
+> also if ur a shiptard <sub>(identify or engage in ship discourse)</sub> go take a shower & leave me alone highkey,,,,,,,,,,, you niggas stink peeeyew
+
+   <p align="center"> shamelessly a furry artist & i like playing & uhmmm having fun
