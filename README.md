@@ -4,10 +4,12 @@
  
    <p align="center"> im black & 17 yos (2/11) so that will. certainly impact how i go about conversation n stuff. 
     
-   >  erm -15 keep ur distance / interaction limited i dont wanna be frens w or talk to drooling babies #keepingitreal #iaintdiddy
+   >  erm -15 keep interaction reaalll surface-level i dont wanna be frens w drooling babies #keepingitreal #iaintdiddy
 
 > also if ur a shiptard <sub>(identify or engage in ship discourse)</sub> go take a shower & leave me alone highkey,,,,,,,,,,, you niggas stink peeeyew
 
-   <p align="center"> uhm im a furry artist... & an artist when iwant to be,, n i like playing & uhmmm having fun despite being "unc"
+   <p align="center"> uhm im a furry artist... & an artist when i want to be,, n i like playing & uhmmm having fun despite being "unc"
 
    * idm c+h from anyone regardless of skins,,,,, i like c+h....... just dont sit next to me for ship slop reasons
+   * i dc a lot bcs im usually offtab or my wifi acts butt #whoops
+     * if you need to, just whisper me so i can see the desktop noti
