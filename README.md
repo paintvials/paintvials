@@ -15,7 +15,6 @@
    <p align="center"> uhm im a furry artist... & an artist when i want to be,, n i like playing & uhmmm having fun despite being "unc"
 
    * idm c+h from anyone regardless of skins,,,,, i like c+h....... just dont sit next to me for ship slop reasons
-   * i dc a lot bcs im usually offtab or my wifi acts butt #whoops
-     * if you need to, just whisper me so i can see the desktop noti
+   * i dc a lot as im usually offtab or my wifi acts butt #whoops
    <img width="2048" height="273" alt="image" src="https://github.com/user-attachments/assets/992721f5-077a-4e48-bcd4-c886ae45c284" />
 
